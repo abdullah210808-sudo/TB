@@ -1,4 +1,4 @@
-Salom meni smim Abdulloh 
+Salom meni ismim Abdulloh 
 
 
 
