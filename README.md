@@ -1,0 +1,1 @@
+Salom meni ismim Abdulloh
